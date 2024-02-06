@@ -1,5 +1,5 @@
-- 👋 Hi, I’m H m o y i d d i n
-- 👀 I’m interested in CODING
+- 👋 Hi, I’m H u m o y i d d i n
+- 👀 I’m interested in C O D I NG
 - I want tobe white H A C K E R !!!
 
 <!---
